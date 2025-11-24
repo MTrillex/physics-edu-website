@@ -282,7 +282,7 @@ Built with a focus on educational quality and scientific accuracy, this platform
 
 ## Contact
 
-For questions, suggestions, or collaboration inquiries, please use the contact form available within the application.
+For questions, suggestions, or collaboration inquiries, please contact me at davidtrillex@gmail.com.
 
 ---
 
